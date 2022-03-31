@@ -1,5 +1,5 @@
 ---
-title: keyring
+title: Personalised Keyring and Gift Tags
 date: 2020-06-01
 subtitle: Handmade
 link: https://www.etsy.com/uk/listing/1178228126/unique-personalised-bespoke-keyring-gift
