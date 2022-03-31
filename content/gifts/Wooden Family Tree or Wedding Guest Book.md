@@ -1,5 +1,5 @@
 ---
-title: Family Tree
+title: Wooden Family Tree or Wedding Guest Book
 date: 2020-06-01
 subtitle: Handmade
 link: https://www.etsy.com/uk/listing/1194240959/unique-unusual-alternative-personalised
