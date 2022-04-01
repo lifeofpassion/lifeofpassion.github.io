@@ -1,5 +1,5 @@
 ---
-title: Unique Unusual Personalised Digital Foot and Hand Art Print
+title: Unique Unusual Personalised Foot and Hand Art Print
 date: 2020-06-01
 subtitle: Digital Download
 link: https://www.etsy.com/uk/listing/1192220781/unique-unusual-personalised-digital
