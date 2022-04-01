@@ -1,5 +1,5 @@
 ---
-title: Unusual Personalised Bespoke Cousin Are The Best of Friends Hands
+title: Personalised Cousin Are The Best of Friends
 date: 2020-06-01
 subtitle: Digital Download
 link: https://www.etsy.com/uk/listing/1198021405/unusual-personalised-bespoke-cousin-are
