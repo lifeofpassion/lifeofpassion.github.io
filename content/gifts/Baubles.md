@@ -1,5 +1,5 @@
 ---
-title: Baubles
+title: 
 date: 2020-06-01
 subtitle: Handmade
 link: https://www.etsy.com/uk/listing/1194190111/unique-unusual-personalised-baubles
