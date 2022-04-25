@@ -1,5 +1,5 @@
 ---
-title: Wellness Journal
+title: 
 date: 2020-06-01
 subtitle: Digital Download
 link: https://www.etsy.com/uk/listing/1173944968/wellness-journal-template-undated
