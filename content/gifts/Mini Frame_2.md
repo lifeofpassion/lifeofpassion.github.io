@@ -1,5 +1,5 @@
 ---
-title: Unique Personalised Wooden Boxes {various styles and sizes} Ideas for unique ways to use in listing. 
+title: 
 date: 2020-06-01
 subtitle: Handmade
 link: https://www.etsy.com/uk/listing/1192653021/unique-personalised-wooden-boxes-various
