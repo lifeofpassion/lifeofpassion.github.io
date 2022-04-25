@@ -1,5 +1,5 @@
 ---
-title: Leeds United
+title: 
 date: 2020-06-01
 subtitle: Digital Download
 link: https://www.etsy.com/uk/listing/1192662511/leeds-united-digital-download-prints
