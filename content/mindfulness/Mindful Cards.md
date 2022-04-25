@@ -1,5 +1,5 @@
 ---
-title: Mindful Cards
+title: 
 date: 2020-06-01
 subtitle: Digital Download
 link: https://www.etsy.com/uk/listing/1189851063/set-of-27-mindfulness-grounding
